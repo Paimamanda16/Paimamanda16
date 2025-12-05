@@ -1,5 +1,5 @@
 #Amanda Paim
-👨‍🎓 Me chamo Amanda Paim, tenho 35 anos e sou natural do Rio Grande do Sul. Concluí o ensino médio em escola Publica,Atualmente, estou cursando Análise e Desenvolvimento de Sistemas na Unicesumar.
+👨‍🎓 Me chamo Amanda Paim, tenho 35 anos e sou natural do Rio Grande do Sul. Atualmente, estou cursando Análise e Desenvolvimento de Sistemas na Unicesumar.
 
 
 
